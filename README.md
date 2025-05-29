@@ -1,2 +1,0 @@
-# protifolio
-Meu portifolio
